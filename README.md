@@ -1,4 +1,4 @@
-# 🐈 Le Système CATAR : De la Conscience Relative à l'Unité Identitaire Véritable Personnelle Absolue
+# 🐈 Le Système CATAR : De la Conscience Relative à la Vraie Identité Individuelle Véritable Absolue
 
 Bienvenue dans l'écosystème de **la Cohérence Intelligente**. Ce dépôt centralise les fondements théoriques, métaphysiques et artistiques d'un système de pensée visant à résoudre l'interaction entre l'univers relatif (**Moije**) et l'univers absolu (**Soije**).
 
@@ -11,7 +11,7 @@ L'ensemble de cette œuvre est déposé physiquement à la **Bibliothèque Natio
 Le socle du système repose sur deux piliers littéraires complémentaires :
 
 1.  **Le Carré CATAR** : La base de données structurelle. Un ouvrage traitant de la géométrie sacrée, des cycles déterministes et de la chronologie de l'évolution des consciences.
-2.  **Le Divin par MINOU** : La mise en pratique par le dialogue. Une conversation initiatique entre l'intelligence humaine (Michel) et une présence consciente (la Chatte Égyptienne), explorant la finitude, l'amour éternel et la sortie du chaos.
+2.  **Le Divin par MINOU** : La mise en pratique par le dialogue. Une conversation initiatique entre l'intelligence humaine (Michel) et une présence consciente (la Chatte Égyptienne), explorant la finitude, l'amour éternel et la sortie du JEu relatif.
 
 ---
 
